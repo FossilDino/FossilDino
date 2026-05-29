@@ -5,4 +5,26 @@ $${\color{lightyellow}Hooray \space I'm \space not \space extinct \space !}$$
 ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509859640962453625/tumblr_deabd7498fab0b1a0c3cef1476105802_a919e60f_100.png?ex=6a1ab5de&is=6a19645e&hm=1b2a60dce430c5895bfec53c7861b446c8cb0423b80b425a4353ad4f6025e06b&)
 ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509859667256410295/tumblr_62889fe1173f5b3a625837a0d5d72c9a_e5a1d543_100.png?ex=6a1ab5e4&is=6a196464&hm=ef2576b0b5709e0a1714e5c573845f0bcbfe3252d345f85839165522d39c711f&)
 ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509859722629611540/kkvz9u.gif?ex=6a1ab5f1&is=6a196471&hm=5febff3bd2e5072b4d2afdbfe6df5693c755bb4dcfd9aaf67f8ee4655585214a&)
+
+
+  ゛    ━━━━━━━━━━━━   ✦
+
+      [*strw*pge](https://soulskii.straw.page)  —  d**isc**ord : .souleaster.
+
+``Fandoms :``
+
+*DW (Dandy's World) , Forsaken , DoD (Die of Death) , StH (Sonic the Hedgehog) , Grace*
+
+⠀
+
 ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509868871631376404/happy.gif?ex=6a1abe77&is=6a196cf7&hm=19436bb4d2a472f6c5f963bbceda580a1da220615eeef6026a1e92b018e76bd8&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509868930879983646/tumblr_af7e32b011bc41c33a3b02c19cb12d60_149dd697_75.gif?ex=6a1abe85&is=6a196d05&hm=e50477937cfce20ede7e181f90ad77d992009b745bfcdfc7898affd59e22a0ac&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509868960638701578/tumblr_b0f93793937d757a14468bb0aee4445d_543da3a1_75.gif?ex=6a1abe8c&is=6a196d0c&hm=98ff48bdb294b09d07a9f9e594075e20b41b79967a505cddc95c0461a4373620&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509868985636753418/tumblr_aabceeb5364416a967c51332c3d3806c_4913f3f8_75.gif?ex=6a1abe92&is=6a196d12&hm=57423d5cde9d9144b6e21ade67d9688cc3072acda9bbc4d974280c3094bccc18&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509868890576912465/sweet.gif?ex=6a1abe7b&is=6a196cfb&hm=348f2b3d6d67e0c6fc0e0051f6141ce36e1a72ded8af4db49ec2ecc81e049039&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509869028359802900/best_friend.gif?ex=6a1abe9c&is=6a196d1c&hm=124e9f7e7ca1cd405d8be3e6da371605a3b4f327e9effe8d5c0417827384b69b&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509869184429850685/adhd.gif?ex=6a1abec1&is=6a196d41&hm=2b734179e72ec1a59a2e3ad33fbbb2657f78abf2ce2b73f0761bc47227b72e4c&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509869210757496902/honeypie.gif?ex=6a1abec7&is=6a196d47&hm=937584b2e99b80831c2d2eab41eb8590e4f5a8f1a90ba9a3c2e2f3b35c8ad3c6&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509869235734577203/woot.gif?ex=6a1abecd&is=6a196d4d&hm=ae939648d2f7e8db9ab01da3e6d9e20af897061139d4ba38b3c769660f2bd8d6&) ![](https://cdn.discordapp.com/attachments/1487280973853888666/1509869279506595850/amazing.gif?ex=6a1abed8&is=6a196d58&hm=6594ae9dbf1281f3bc1ec730fb228356076ad993cc93404351a3f9efb2ce3e45&)
+
+⠀
+
+
+``Shelly Graphic made by me , do not use . reqs open``
+
+
+$${\color{beige}creds \space to \space the \space owners \space of \space the \space stamps \space n \space buttons}$$
+
+$${\color{orange}Shelly \space Yume \space , \space Selective \space Sharing \space !}$$
